@@ -1,0 +1,5 @@
+# Ideas
+
+## Content
+- Visuals
+- 
